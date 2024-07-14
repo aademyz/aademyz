@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aademyz
+- 🌱 I’m currently learning
+- 📫 How to reach me : contact.aademyz@gmail.com
